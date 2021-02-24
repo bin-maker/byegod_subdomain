@@ -1,4 +1,6 @@
-### 地址：https://ruo.me/sub
+# 别天神-神速子域名查询
+
+### 在线查询地址：https://ruo.me/sub
 
 ### 服务器：1H / 1G
 
